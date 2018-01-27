@@ -1,4 +1,4 @@
 # Maincra-
 
-Soy shido 
+Ya me salio
 
